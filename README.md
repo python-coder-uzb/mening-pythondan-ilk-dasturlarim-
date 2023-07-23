@@ -1,0 +1,1 @@
+# mening-pythondan-ilk-dasturlarim-
